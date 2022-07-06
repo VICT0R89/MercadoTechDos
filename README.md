@@ -1,4 +1,4 @@
 # MercadoTechDos
-Tiago 
 Ailen :joy:
-Victor
+Tiago :relaxed: 
+Victor :smiley:
